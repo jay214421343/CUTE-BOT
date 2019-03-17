@@ -1,2 +1,0 @@
-# CUTE-BOT
-sfaafasf
